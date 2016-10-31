@@ -1,1 +1,2 @@
 # Anamika Manhas
+## Academics
