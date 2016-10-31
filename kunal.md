@@ -1,1 +1,3 @@
-# Kunal Arora
+## Kunal Arora
+## Academics
+* MBBS in Gian Sagar Medical College & Hospital
